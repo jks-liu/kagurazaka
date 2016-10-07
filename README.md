@@ -1,0 +1,2 @@
+# kagurazaka
+Wish Fang die
